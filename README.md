@@ -5,7 +5,7 @@
 
 - 📫 How to reach me **baranalexandru98@gmail.com**
 
-<h3 align="left">Connect with me:</h3>
+<h3 align="left">Connect with me:https://www.hackerrank.com/profile/baranalexandru98</h3>
 <p align="left">
 </p>
 
